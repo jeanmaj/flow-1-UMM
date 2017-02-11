@@ -1,2 +1,2 @@
 # flow-1-UMM
-Hjemmeside til United MixMedia til deres 4 målgrupper
+Hjemmeside til United MixMedia's 4 målgrupper
